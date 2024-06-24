@@ -58,4 +58,4 @@
 
 Ссылка на текст курсовой работы: https://docs.google.com/document/d/1vDf1Mm9mH8tO7xT8cYW2Z1n22hQ2beHf/edit?usp=drive_link&ouid=109706900430452151859&rtpof=true&sd=true
 
-Ссылка на презентацию курсовой работы: https://docs.google.com/presentation/d/1UW9mOqhoe-RVFHEMP8UNmI22ZnJzTIaj/edit?usp=drive_link&ouid=109706900430452151859&rtpof=true&sd=true
+Ссылка на презентацию курсовой работы: https://docs.google.com/presentation/d/1huSj9JIhbT-cEtF4wC9f1gtsaREWPAor/edit?usp=drive_link&ouid=109706900430452151859&rtpof=true&sd=true
