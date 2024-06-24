@@ -56,6 +56,6 @@
 
 
 
-Ссылка на текст курсовой работы: https://docs.google.com/document/d/1yhY_w5R-DA63p6a19rKaTfM8-ERhC6ab/edit?usp=sharing&ouid=109706900430452151859&rtpof=true&sd=true
+Ссылка на текст курсовой работы: https://docs.google.com/document/d/19SEvDyr6UVh8_3p7DLhNzSSfoURQeWy3/edit?usp=drive_link&ouid=109706900430452151859&rtpof=true&sd=true
 
-Ссылка на презентацию курсовой работы: 
+Ссылка на презентацию курсовой работы: https://docs.google.com/presentation/d/1UW9mOqhoe-RVFHEMP8UNmI22ZnJzTIaj/edit?usp=drive_link&ouid=109706900430452151859&rtpof=true&sd=true
